@@ -6,10 +6,8 @@
 
 - 👨‍👩‍👦‍👦 Family is essential for my existence, I enjoy and learn from them as much as I can. 
 
-- 📖 My interests are in sports and production management. I would like to jump into these fields for my future careers.
-
 - ☑️ My goal after I accomplish my MS in Business Analytics is to have all the major skills on Tableau and SQL. 
 
 - 🌞🌚 Finally I enjoy any adventures with nature either by sea or by snowy mountains. A quiet time for yourself surrounded by nature can help you reach inner peace. 
 
-- 🗣 I speak English, Spanish, Italian and fluent in Portuguese.
+- 🗣 I speak English, Spanish, Italian and moderate Portuguese.
